@@ -1,3 +1,4 @@
-# Amazon
+Hi everybody my name is shlok patel
 <br>
-hi my name is shlok patel
+This website is created just for practice in free time dont use this for illigal activites
+<br>
